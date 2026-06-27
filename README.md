@@ -1,4 +1,4 @@
-### jjjsnsn
+### in a Lotta fandoms 👀
 
 <!--
 **Rareoccasionx/Rareoccasionx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
