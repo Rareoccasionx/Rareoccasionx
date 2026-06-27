@@ -1,3 +1,2 @@
 ### in a Lotta fandoms 👀
-
-<!##https://pronouns.cc/@rareoccasionxx
+<! evil people (https://pronouns.cc/@rareoccasionxx)
